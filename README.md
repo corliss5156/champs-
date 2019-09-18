@@ -1,3 +1,3 @@
-# Daryl damn dumb
-## but shaun is dumber 
+## Daryl damn dumb
+# but shaun is dumber 
 real champs here 
