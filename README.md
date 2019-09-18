@@ -1,2 +1,2 @@
-# champs-
+# Daryl damn dumb
 real champs here 
